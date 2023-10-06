@@ -1,1 +1,1 @@
-![full_black](https://github.com/equichainfi/.github/assets/113932706/c2329e54-e518-428f-ae67-2b8f680aa2ba)
+![full_black](https://github.com/equichainfi/.github/assets/113932706/ccac5503-99c0-4a80-becd-5f9c12a06d38)
